@@ -1,6 +1,3 @@
 ﻿# hi
-follow me or star my repo pls bro
 
-pls speed i need this
-my repositories are kinda starless
 
