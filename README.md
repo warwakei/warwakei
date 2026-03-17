@@ -10,4 +10,4 @@ https://github.com/iww-dev,
 https://github.com/iwakewar,
 https://github.com/warwakei,
 https://github.com/warwakei-afk,
-https://github.com/cyphrone,
+https://github.com/cyphrone
