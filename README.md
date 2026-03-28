@@ -1,6 +1,6 @@
 hi
 
- y discord: warwakei
+my discord: warwakei
 
 
 official profiles/usernames:                                                        
